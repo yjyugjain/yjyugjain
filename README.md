@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @yjyugjain
+- 👀 I’m interested in Blockchain Development, DEX.
+- 🌱 I’m currently learning Blockchain Development
+- 💞️ I’m looking to collaborate on any projects that are currently offered.
+- 📫 How to reach me - yjyugjain@gmail.com
+- 😎 I'm a student of class 12.
+- ❤️ I'm from India.
